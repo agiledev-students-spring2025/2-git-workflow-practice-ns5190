@@ -1,3 +1,7 @@
+## Jason Tran
+
+Hi Nabiha, thank you so much for sharing this article. I thought that this article was extremely cool and interesting as its never crossed my mind about the possibilites of using VR to help children in places where there is a lack of educational resources. The possiblities that VR could open up for the youth is truly limitless and I think that is awesome. Thank you!
+
 ## Article
 
 https://sdtimes.com/ai/code-org-and-amazon-launch-new-curriculum-to-teach-ai-skills-to-kids-in-grades-8-12/
